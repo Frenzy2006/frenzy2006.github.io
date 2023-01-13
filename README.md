@@ -25,7 +25,7 @@ Louis Gabriel A. Delovieres
 
 - Classroom Of The Elite (Waiting for Season 3)
 
-![alt text](https://cdn.anime-planet.com/anime/primary/classroom-of-the-elite-1.jpg?t=1630331683)
+![alt text]()
 
 - Bleach ( My Fav Episode,Season 14 Episode 37: The Final Getsuga Tensho!?)
 
