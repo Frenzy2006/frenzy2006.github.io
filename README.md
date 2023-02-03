@@ -40,7 +40,7 @@ Louis Gabriel A. Delovieres
 
 
 | TOP MANGA |
-|------------|
+|-----------|
 
 - Shitsugyou Kenja no Nariagari: Kirawareta Sainou wa Sekai Saikyou deshita.
 
